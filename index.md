@@ -11,4 +11,4 @@ Robert Anthony De Niro Jr., born August 17, 1943, is an American actor, producer
 
 As Robert de Niro said:
 
-> "When I was around 18. I was looking at a TV show [...] and I said if these actors are making a living at it, and they’re not really that good, I can’t do any worse than them."
+> When I was around 18. I was looking at a TV show [...] and I said if these actors are making a living at it, and they’re not really that good, I can’t do any worse than them.
